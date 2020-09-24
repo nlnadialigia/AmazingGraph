@@ -25,8 +25,6 @@ ___
 
 ___
 
-<img src="https://img.ibxk.com.br/2017/02/23/23140547494491.jpg?w=1120&h=420&mode=crop&scale=both" width="1200">
-
 <br>
 <br>
 
